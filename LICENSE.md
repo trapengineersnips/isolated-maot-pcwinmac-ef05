@@ -1,4 +1,4 @@
-# 
+# Élite isolated-margin trading bot préréglages pour Mac OS | Meilleur isolated-margin trading bot préréglages pour PC Windows. Avec moteur de backtest et protection MEV — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
